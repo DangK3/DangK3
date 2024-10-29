@@ -1,4 +1,4 @@
-## Hi there 👋 tus là pé Đăng.
+## Hi there 👋 I'm Đăng.
 
 ---
 <p align="center">
